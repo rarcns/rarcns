@@ -1,0 +1,5 @@
+- I’m @rarcns
+- call me eng:rar jp:らる
+- i can make discord.js bot,html css page,other c++,Python tools
+- I’m looking for best programing partner
+- if you japanese,you can speak jp
